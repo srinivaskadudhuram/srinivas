@@ -1,5 +1,5 @@
-# srinivas# 💫 About Me:
-I'm currently learning devops  <br>I'm looking for collaborate with IT companies which has devops role<br>Ask me about carrer growth<br>Funfact is i make jokes to laugh everone
+💫 About Me:
+I'm currently learning devops  <br>I'm looking for collaborate with IT companies which has devops role<br>
 
 
 ## 🌐 Socials:
